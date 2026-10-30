@@ -26,6 +26,11 @@ LINKS
 
 
 [+]
+
 Creator of the No. 1 Zoroastrian Detective Agency series. Host & Producer of the Fulmo Talk Series. Co-blogger on the award winning Zoo Station blog. {+ more } 
+
 I have had a successful parallel career as an author/writer, researcher and speaker - see GitHub # 3 for details.
+
 [+]
+
+I have given talks sponsored by organizations such as the IEEE Society, the Rotaract Club, the ACM Society, Computer Society of India, the Indian Institutes of Technology, PES University and AMC College of Engineering.
