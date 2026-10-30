@@ -21,7 +21,9 @@ LINKS
 - Professional Portfolio: https://bit.ly/3Hsylqd 
 - Code: https://bit.ly/4xQFaXr - (GitHub #1)
 - Software Portfolio GitHub account: https://bit.ly/48mHGJX - (GitHub #2)
-- Career Portfolio GitHub account: https://bit.ly/48mHGJY - (GitHub #3)
+- Career Portfolio GitHub account: https://bit.ly/4BFIyHk - (GitHub #3)
+
+
 
 [+]
 Creator of the No. 1 Zoroastrian Detective Agency series. Host & Producer of the Fulmo Talk Series. Co-blogger on the award winning Zoo Station blog. {+ more } 
